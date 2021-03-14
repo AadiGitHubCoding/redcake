@@ -1,0 +1,1 @@
+mix the 3 ingredients in a bowl and then bake it for 30 minutes at 300 degrees celceus.
