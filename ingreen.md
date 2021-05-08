@@ -1,1 +1,0 @@
-cocoa powder, vinegar and buttermilk
